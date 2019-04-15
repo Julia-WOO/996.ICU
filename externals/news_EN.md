@@ -22,3 +22,5 @@ Related press:
 * *Channel NewsAsia:* [Commentary: China's protest against long working hours is so old-fashioned](https://www.channelnewsasia.com/news/commentary/china-996-protest-working-long-hours-old-fashioned-11433878). 11 April, 2019.
 * *Fortune:* [China's Workers Are Protesting Tech's Deadly '996' Overtime Culture. Alibaba's Jack Ma Says He Requires It.](http://fortune.com/2019/04/12/china-996-jack-ma/) 12 April, 2019.
 * *TechCrunch:* [China’s startup ecosystem is hitting back at demanding working hours](https://techcrunch.com/2019/04/12/china-996/). 12 April, 2019.
+* *Pandaily:* [Ep. 42: To 996, or Not to 996, That Is the Question](https://pandaily.com/ep-42-to-996-or-not-to-996-that-is-the-question/). 13 April, 2019.
+* *Pandaily:* [Is 996 Truly a Blessing? Let’s Hear What Richard Liu and Jack Ma Have to Say](https://pandaily.com/is-996-truly-a-blessing-lets-hear-what-richard-liu-and-jack-ma-has-to-say/). 14 April, 2019.
